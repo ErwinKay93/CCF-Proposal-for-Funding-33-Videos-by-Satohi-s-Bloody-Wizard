@@ -32,7 +32,8 @@ I’m sure you’re already a 5D MC but if not, I suggest you do the Bloody Wiza
 
 🌐Follow me
 
-All my articles are on X:  https://x.com/Alt\_Cult\_/
+All my articles are on X: [https://x.com/Alt_Cult_](https://x.com/Alt_Cult_)
+
 
 Updated videos are on IG: https://www.instagram.com/erwinkayser/
 
@@ -314,7 +315,7 @@ I could also see how every single thing had to play out exactly the way it did t
 
 I also want to build Qubic Island a retreat for Qubicans who hold more than a billion Qubic. One of the main features will be hosting DMT, psychedelic, and ceremonial rituals just to ensure the richest people on Earth don’t end up becoming a bunch of heartless dicks.
 
-And hey, go follow @madisonvandereb on IG. We’ve got similar views on AGI and she’s got a beautiful, wise soul that really helped me on this journey.
+And hey, go follow (https://www.instagram.com/madisonvandereb/?hl=en) IG. We’ve got similar views on AGI and she’s got a beautiful, wise soul that really helped me on this journey.
 
 Releasing all is one is the most liberating realisation of all. You are the creator and destroyer of your own universe. Every action has an equal and opposite reaction. Now? You get to observe. Play. make mistakes but as long as you keep growing and think with both your heart and your mind.
 
