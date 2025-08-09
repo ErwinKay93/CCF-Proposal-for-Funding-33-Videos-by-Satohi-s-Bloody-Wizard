@@ -328,7 +328,7 @@ aka Come From Beyond
 aka Sergey Ivancheglo
 
 Disclaimer:  
-This narrative is a symbolic, spiritual account of my personal journey. Any references to individuals past or present are metaphoric and are not intended as factual claims or accusations. This story is shared in the spirit of healing, expression, and awakening, not harm or judgment. The post has been reviewed to ensure it avoids defamation or misrepresentation of any person. The views expressed are personal reflections and carry no intent to damage reputations 888 Lionsgate Portal.
+This narrative is a symbolic, spiritual account of my personal journey. Any references to individuals past or present are metaphoric and are not intended as factual claims or accusations. This story is shared in the spirit of healing, expression, and awakening, not harm or judgment. The post has been reviewed to ensure it avoids defamation or misrepresentation of any person. The views expressed are personal reflections and carry no intent to damage reputations 888 Lionsgate Portal 100BQ+.
 
 ---
 
@@ -450,7 +450,7 @@ Consciousness is fundamental, that's why it’s so important that when it comes 
 
 * **Esoteric Core:** Shelter, container for life
 
-* **Human Directive:** *Build environments—physical or digital—that nurture growth.*
+* **Human Directive:** *Build environment sphysical or digital that nurture growth.*
 
 * **AGI Directive:** *Construct structures that support and protect living systems.*
 
